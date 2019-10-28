@@ -10,10 +10,15 @@ Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUT
 Quem quiser adesivos pode me procurar nos eventos!
 
 ## Sanduíche (iche)
+*29 de Maio de 2006*
 
 Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida.
 
-[![Sanduicheiche](https://vignette.wikia.nocookie.net/meme/images/1/14/Ruth_Lemos.png/revision/latest?cb=20151016223957&path-prefix=pt-br)](https://www.youtube.com/watch?v=pmn-dbBpglU)
+"Sanduíche-iche" é referente a um vídeo de uma nutricionista que participou de uma entrevista realizada pela emissora de TV Rede Globo, a fim de dar conselhos de como se alimentar de forma saudável.
+
+Um atraso na transmissão do áudio para a nutricionista[1] fez ela se ouvir enquanto falava, gerando confusão e fazendo-na repetir palavras e sílabas, dando a impressão de que ela sofria gagueira.
+
+[![Sanduicheiche](http://images.uncyc.org/pt/3/3b/Ruth-lemos-o.gif)](https://www.youtube.com/watch?v=pmn-dbBpglU)
 
 ## BIRL (Bambam bodybuilder)
 
